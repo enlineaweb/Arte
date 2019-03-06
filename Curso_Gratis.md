@@ -4,3 +4,7 @@ Vende tus trabajos y los de otros también _ Aprende a generar una gran cantidad
 ------------------------------------
 Entra Aquí _ https://tinyurl.com/y4j477tb
 ------------------------------------
+Luego puedes hacer una donación aquí _ https://tinyurl.com/y4zknkn5
+------------------------------------
+Suscríbete para recibir lo nuevo en Todo Gratis aquí _ https://tinyurl.com/y2fwhpac
+------------------------------------
