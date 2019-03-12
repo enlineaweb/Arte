@@ -4,7 +4,11 @@ Vende tus trabajos y los de otros también _ Aprende a generar una gran cantidad
 ------------------------------------
 Entra Aquí _ https://tinyurl.com/y4j477tb
 ------------------------------------
+¡ Únete a Esta Nueva Comunidad de Emprendedores por Internet !
+------------------------------------
+Suscríbete a la Comunidad en Línea Para Estar al Tanto de los Nuevos Cursos y Recursos Gratis _ https://tinyurl.com/y2fwhpac
+------------------------------------
 Luego puedes hacer una donación aquí _ https://tinyurl.com/y4zknkn5
 ------------------------------------
-Suscríbete para recibir lo nuevo en Todo Gratis aquí _ https://tinyurl.com/y2fwhpac
+Para sugerencias, dudas, ayuda; contactar aquí _ https://github.com/enlineaweb/Contacto
 ------------------------------------
